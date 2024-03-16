@@ -10,7 +10,8 @@
 
 > 由于人数的限制,以下账号可能会出现封禁的现象,但网站不定时更新一次,如紧急需要,可以访问以下链接
 >
-> 〔[(http://shop.nahuo8.xyz/)](http://shop.nahuo8.xyz/)〕 
+> 〔[(http://shop.nahuo8.xyz/)](http://shop.nahuo8.xyz/)〕
+> 
 > 【[https://shopping.88hy.top/](http://shopping.88hy.top/)】
 >
 > 但是注意一点，这里面的共享号（租号）比较便宜，其他官方充值，看着多少贵一点了。
