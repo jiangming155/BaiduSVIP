@@ -38,6 +38,9 @@
 ## 迅雷
 
 > 暂无
+>
+## 话费充值
+> 〔[(话费九折/)]([http://shop.nahuo8.xyz/](http://shopping.88hy.top/inside/goodsList?dirId=481&tid=1))〕
 
 # GPT
 
