@@ -33,6 +33,7 @@
 > https://www.bdwkxz.com/zoe-145d0d7a76cf07e0 （已失效）
 >
 > https://www.bdwkxz.com/bny-ab6fcff6f697f3e8
+> 
 > 注意: 手机扫码  电脑登录是最方便的
 > 另外，链接里面ip异常一般出现的少，但账号中需要验证登录或下载失败的多，所以尽量用完以后立刻退出。
 
