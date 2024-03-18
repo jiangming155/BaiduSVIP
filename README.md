@@ -32,6 +32,8 @@
 >
 > https://www.bdwkxz.com/zoe-145d0d7a76cf07e0 （已失效）
 >
+> 3.18
+> 
 > https://www.bdwkxz.com/bny-ab6fcff6f697f3e8
 > 
 > 注意: 手机扫码  电脑登录是最方便的
