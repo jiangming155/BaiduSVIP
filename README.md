@@ -41,7 +41,7 @@
 
 ## 迅雷
 
-> 暂无
+> 126489717----aa0954
 >
 ## 话费充值
 > [话费九折](http://shopping.88hy.top/inside/goodsList?dirId=481&tid=1)
