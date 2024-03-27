@@ -16,7 +16,7 @@
 >
 > 但是注意一点，这里面的共享号（租号）比较便宜，其他官方充值，看着多少贵一点了。
 >
-> 这里面包含： 百度云Svip、优酷vip、芒果vip、B站大会员、腾讯vip、迅雷超级会员，爱奇艺VIP会员，优酷VIP会员，哔哩哔哩大会员，百度文库VIP，网易云黑胶VIP
+> 这里面包含： 百度云Svip、酷喵、奇异果、巨好看、优酷vip、芒果vip、B站大会员、腾讯vip、迅雷超级会员，爱奇艺VIP会员，优酷VIP会员，哔哩哔哩大会员，百度文库VIP，网易云黑胶VIP
 
 ## 百度网盘
 
@@ -43,14 +43,7 @@
 
 > 126489717----aa0954
 >
-## 话费充值
-> [话费九折](http://shopping.88hy.top/inside/goodsList?dirId=481&tid=1)
 
-# GPT
-
-| https://qianwen.aliyun.com/chat<br/>https://yiyan.baidu.com/<br/>https://e.aiask.me/#/home/chat<br/>https://cc.ai55.cc/<br/>https://ailink.icu/<br/>https://kjz6e.aitianhu.ink/#/chat/1002<br/>https://chatr.free2gpt.xyz/<br/>https://xinghuo.xfyun.cn/desk<br/>https://chatglm.cn/main/detail | ![image-20240314234355184](assets/image-20240314234355184.png) |
-| ------------------------------------------------------------ | ------------------------------------------------------------ |
-|                                                              |                                                              |
 
 
 
