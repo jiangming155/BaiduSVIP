@@ -12,7 +12,7 @@
 >
 > 〔[(http://shop.nahuo8.xyz/)](http://shop.nahuo8.xyz/)〕
 > 
-> 【[https://shopping.88hy.top/](http://shopping.88hy.top/)】
+> 【[https://shopping.88hy.top/](http://shopping.88hy.top/?pid=19403/)】
 >
 > 但是注意一点，这里面的共享号（租号）比较便宜，其他官方充值，看着多少贵一点了。（百度网盘4块多，稳定一点的好像要五块）
 >
@@ -34,7 +34,7 @@
 >
 > 3.18
 > 
-> https://www.bdwkxz.com/bny-ab6fcff6f697f3e8（已失效）
+> https://www.bdwkxz.com/bny-ab6fcff6f697f3e8 （已失效）
 > 
 > 注意: 手机扫码  电脑登录是最方便的
 > 另外，链接里面ip异常一般出现的少，但账号中需要验证登录或下载失败的多，所以尽量用完以后立刻退出。
