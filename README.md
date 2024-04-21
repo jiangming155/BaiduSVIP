@@ -34,11 +34,7 @@
 >
 > https://www.bdwkxz.com/bny-ab6fcff6f697f3e8 （已失效）
 >
-> 4.21
->
-> https://www.bdwkxz.com/bny-c7cb9d5fe309584c （可用）
->
-> https://www.bdwkxz.com/bny-0eb381ba1da89403 （可用）
+
 >
 > 注意: 手机扫码  电脑登录是最方便的
 > 另外，链接里面ip异常一般出现的少，但账号中需要验证登录或下载失败的多，所以尽量用完以后立刻退出。
