@@ -34,8 +34,18 @@
 >
 > https://www.bdwkxz.com/bny-ab6fcff6f697f3e8 （已失效）
 >
-
+>4.27
+> 
+>https://www.bdwkxz.com/zoe-51c81f4418a6f41d
+> 
+>https://www.bdwkxz.com/zoe-bf8a783ffd0f0581
+> 
+>https://www.bdwkxz.com/zoe-01dd1d70f40178df
 >
+> 
+
+![image](https://github.com/jiangming155/nahuo8/assets/66199527/ad1a1266-4928-4069-ac70-bacdae7721c0)
+
 > 注意: 手机扫码  电脑登录是最方便的
 > 另外，链接里面ip异常一般出现的少，但账号中需要验证登录或下载失败的多，所以尽量用完以后立刻退出。
 
