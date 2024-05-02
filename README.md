@@ -10,7 +10,7 @@
 >
 > 〔[(http://shop.nahuo8.xyz/)](http://shop.nahuo8.xyz/)〕
 >
-> 【[https://shopping.88hy.top/](http://shopping.88hy.top/?pid=19403/)】
+> 【[http://shopping.88hy.top/](http://shopping.88hy.top/?pid=19403/)】
 >
 > 但是注意一点，这里面的共享号（租号）比较便宜，其他官方充值，看着多少贵一点了。（百度网盘4块多，稳定一点的好像要五块）
 >
@@ -96,7 +96,7 @@
 | **WPS+文库**                                                 |          |          |                                                |
 | 自动 【非直充】WPS超级会员+稻壳会员【25~30天】               | 5.60 元  |          |  [购买](http://shop.nahuo8.xyz/pg/63017.html)  |
 
-# 共享账号（https://shopping.88hy.top/）
+# 共享账号（[http://shopping.88hy.top/](http://shopping.88hy.top/)  ）
 
 | 账号                                                         | 价格        | 操作                                                         |
 | ------------------------------------------------------------ | ----------- | ------------------------------------------------------------ |
