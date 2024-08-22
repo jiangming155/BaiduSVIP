@@ -10,46 +10,15 @@
 > 
 >http://shop.fk7777.cn/
 > 
-共享号（租号）比较便宜，其他官方充值，看着多少贵一点了。
 >
 
 ## 百度网盘
+>8.22:
+>
+>https://www.bdwkxz.com/zoe-d5bdec0f86e1601f
+>
 
-> 2.27: 
->
-> https://www.bdwkxz.com/zoe-bebae6e81414fd12  （已失效）
->
-> 3.9
->
-> https://www.bdwkxz.com/bny-0f51b72760913c35 （已失效）
->
-> 3.14
->
-> https://www.bdwkxz.com/zoe-145d0d7a76cf07e0 （已失效）
->
-> 3.18
->
-> https://www.bdwkxz.com/bny-ab6fcff6f697f3e8 （已失效）
->
->4.27
-> 
->https://www.bdwkxz.com/zoe-51c81f4418a6f41d
-> 
->https://www.bdwkxz.com/zoe-bf8a783ffd0f0581
-> 
->https://www.bdwkxz.com/zoe-01dd1d70f40178df
->
-> 5.14
->
-> https://www.bdwkxz.com/bny-abea0d274a9b5712  （不可下载）
->
-> https://www.bdwkxz.com/bny-a50093413137fd1a
->
-> 6.4
-> 
-> https://www.bdwkxz.com/zoe-55024cb01f8061a3
-> 
-> 注意: 手机扫码  电脑登录是最方便的
+
 
 
 ## 迅雷
