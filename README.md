@@ -13,6 +13,10 @@
 >
 
 ## 百度网盘
+>8.26
+>https://www.bdwkxz.com/zoe-6f26325d63535be7
+>
+
 >8.22:
 >
 >https://www.bdwkxz.com/zoe-d5bdec0f86e1601f
